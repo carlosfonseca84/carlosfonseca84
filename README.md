@@ -1,6 +1,6 @@
 # <div align="center">
 
-![banner](https://canva.link/4zfwatc9zz7x51b)
+![banner](https://canva.link/4hq6zs0eevrcvi7)
 
 # Carlos Fonseca
 
